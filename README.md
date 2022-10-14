@@ -4,6 +4,14 @@
 
 
  
-### 😎Soft Skills😎
+### 😎Soft Skills😎                  ###👩‍🎓🕵️‍♂️ Hard Skills🕵️‍♀️👩‍
+                                
+*✔Perfil Análitico👀*                🎓 
+                                      👩‍
+                                      💻
+                                      👨‍
+                                      💻
+                                      *🧗 JavaScript ♀🧗‍
+                                      *♀️💪 HTML 💪
 
-*✔Perfil Análitico👀*
+
